@@ -1,0 +1,5 @@
+- Hello [insert name], I am @Hayaana
+- I’m interested in Earth technology
+- I’m currently learning human computer languages
+- I’m looking to collaborate on ...
+- How to reach me: Send all communications to NGC 6853
